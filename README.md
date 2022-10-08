@@ -1,4 +1,4 @@
-### Hi there 🖐
+### Welcome! 🖐
 - 🦕  How to reach me: jaraklindsay@gmail.com
 - 👩‍🦰   Pronouns: she/her
 
